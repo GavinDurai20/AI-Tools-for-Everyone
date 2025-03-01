@@ -69,5 +69,3 @@ Let's explore the world of AI together!
 
 👉 GitHub Profile: https://github.com/GavinDurai20/
 👉 LinkedIn:https://www.linkedin.com/in/gavin-durai/
-👉 Portfolio: [Your Portfolio Link]
-
